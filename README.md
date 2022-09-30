@@ -1,1 +1,1 @@
-# youngseo717.github.io
+# youngseo717
